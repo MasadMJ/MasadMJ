@@ -13,6 +13,7 @@ If you're interested in teaming up or have a project in mind, please don't hesit
 You can reach me through the following channels:
 
 GitHub: @MasadMJ
+
 LinkedIn: https://www.linkedin.com/in/masad-gorban
 
 Feel free to drop me a message, connect, or follow me on social media. I'm always open to discussions, networking, and exploring exciting opportunities.
